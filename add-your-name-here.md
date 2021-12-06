@@ -6,4 +6,4 @@ People in our class this semester:
 - Miranda >:D
 - Diana Fay Arbas
 - Joy Carson
-
+- Mel Lister  
