@@ -5,3 +5,5 @@ People in our class this semester:
 - Adilene Herrera Orozco
 - Miranda >:D
 - Diana Fay Arbas
+- Joy Carson
+
