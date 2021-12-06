@@ -3,3 +3,4 @@ People in our class this semester:
 - Yinxia (Natasha)Tao
 - Vienna Tran
 - Adilene Herrera Orozco
+- Miranda >:D
