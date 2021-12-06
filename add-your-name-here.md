@@ -4,3 +4,4 @@ People in our class this semester:
 - Vienna Tran
 - Adilene Herrera Orozco
 - Miranda >:D
+- Diana Fay Arbas
