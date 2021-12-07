@@ -7,3 +7,4 @@ People in our class this semester:
 - Diana Fay Arbas
 - Joy Carson
 - Mel Lister  
+-Redeat Kibebew
